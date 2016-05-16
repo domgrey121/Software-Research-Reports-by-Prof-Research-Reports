@@ -1,2 +1,0 @@
-# softwareresearchreportsbyprofresearchreports
-The software market have performed stupendously over the last one decade. Numerous developing countries have shown immense potential in the development of global software market. Countries such as India, China, Philippines are home to talented software engineers. There also have been increasing investment in the software market post-recession period. Prof Research Reports is the one and the best online destination to buy plethora of software market research reports and deep-dive industry analysis.
